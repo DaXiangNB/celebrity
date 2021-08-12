@@ -3,7 +3,7 @@
 ## 象朝的指挥员
 
 
-![image](https://note.youdao.com/yws/public/resource/9c0b100c33b6f84cc461ff1234bd0c1a/xmlnote/WEBRESOURCE354b4651c04049435a57020478ea4881/8)
+![image](https://note.youdao.com/yws/public/resource/9186b902c0b986b5bf9dd620227c4f1e/xmlnote/WEBRESOURCE2539877396031eb102e7892a6f0ddcb5/14)
 
 ## 谢 污 长象 忠霖 二世
 
